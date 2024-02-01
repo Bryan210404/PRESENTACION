@@ -9,7 +9,7 @@ Me especializo en Python y estoy constantemente aprendiendo nuevas tecnologías 
 Colaboro en proyectos de código abierto que me permiten contribuir a la comunidad y aprender de otros desarrolladores talentosos.
 
 📫 ¡Conéctate!
-Me encantaría conectar contigo. Encuéntrame en LinkedIn o Twitter.
+Me encantaría conectar contigo. Encuéntrame en Instagram: https://www.instagram.com/bryancrmt04?igsh=MTlybmQ2Mm4xd2c0aQ==
 
 🚀 Objetivo
 Mi objetivo es seguir creciendo como desarrollador, participar en proyectos impactantes y contribuir al avance de la tecnología.
